@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Mariana
+- 👀 I’m interested in Art
+- 🌱 I’m currently ensino médio
+- ⚡ Fun fact: Gosto de ler com qualquer tipo de musica
